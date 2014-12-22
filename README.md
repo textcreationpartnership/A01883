@@ -37,13 +37,36 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The fall of man, or the corruption of nature, proued by the light of our naturall reason Which being
+
+1. TO THE QVEENES
+MOST EXCELLENT MAIESTIE,
+OVR MOST GRACIOVS
+Soueraigne Lady, and my most
+honoured Mistris Queene
+ANNE.
+
+1. To the Reader.
+
 #####Body#####
 
-1. Blessed Lord God, &c.
+1. THE FALL
+OF MAN.
+
+    _ Blessed Lord God, &c.
+
+1. THE FALL
+OF MAN.
+
+1. THE FALL
+OF MAN.
+
+1. AA
 
 #####Back#####
-The fall of man, or the corruption of nature, proued by the light of our naturall reason Which being
+
+1. The Author to the
+Reader.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
